@@ -121,6 +121,6 @@ D9： 乌鲁木齐→回家
 
 ![](https://img.xjlxw.com/d/file/fu/lvyouditu/lydt/8e58e786d471756f154807fb2a5353c1.jpg)
 
-![](http://m.onegreen.net/maps/HTML/55885.html)
+![](./xinjiang.jpeg)
 
 ![](https://img.xjlxw.com/d/file/xjxlsy/xjly/tuanduilvyou/2012/01/01/2c4b1d521f901cce2b04d62fc56ec505.jpg)
