@@ -118,3 +118,9 @@ D9： 乌鲁木齐→回家
 **33、**新疆是信仰伊斯兰教，忌吃猪肉驴肉，也一定不要在公众场合提到。
 
 **34、**在大巴扎买东西的时候不要随意讨价还价，确定需要购买再还价，当地很忌讳。
+
+![](https://img.xjlxw.com/d/file/fu/lvyouditu/lydt/8e58e786d471756f154807fb2a5353c1.jpg)
+
+![](http://m.onegreen.net/maps/HTML/55885.html)
+
+![](https://img.xjlxw.com/d/file/xjxlsy/xjly/tuanduilvyou/2012/01/01/2c4b1d521f901cce2b04d62fc56ec505.jpg)
