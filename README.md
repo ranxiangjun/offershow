@@ -12,3 +12,5 @@ ta们都有极其丰富的互联网面试经验、也拿了很多的offer、关�
 
 字节跳动校招内推码: 5H8AZ3T 
 投递链接:  https://jobs.toutiao.com/s/esQc2YP
+
+网易游戏校园招聘，内推码：ZI3LPC （投递链接：https://game.campus.163.com/m/home?st=MzAyZjZmY2YtY2JjZC00N2YwLTllOGMtNjU4YTg3MmQ5MzMy
