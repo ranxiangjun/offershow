@@ -1,14 +1,17 @@
 # 新疆
 
-各区间里程数：https://img.xjlxw.com/d/file/xjxlsy/xjly/tuanduilvyou/2012/01/01/2c4b1d521f901cce2b04d62fc56ec505.jpg
+各区间里程数：   
+* https://img.xjlxw.com/d/file/xjxlsy/xjly/tuanduilvyou/2012/01/01/2c4b1d521f901cce2b04d62fc56ec505.jpg   
 
-景区全景图： https://img.xjlxw.com/d/file/fu/lvyouditu/lydt/8e58e786d471756f154807fb2a5353c1.jpg   
+景区全景图：   
+* https://img.xjlxw.com/d/file/fu/lvyouditu/lydt/8e58e786d471756f154807fb2a5353c1.jpg     
 
-​           http://m.onegreen.net/maps/HTML/55885.html   
+* http://m.onegreen.net/maps/HTML/55885.html      
 
-​           http://m.onegreen.net/jingdianditu/HTML/61303.html   
+* http://m.onegreen.net/jingdianditu/HTML/61303.html      
 
-交通图：https://img.xjlxw.com/d/file/fu/lvyouditu/lydt/8ffc0ae5e1cc12667834e396f9144d69.jpg   
+交通图：   
+* https://img.xjlxw.com/d/file/fu/lvyouditu/lydt/8ffc0ae5e1cc12667834e396f9144d69.jpg   
 
 # 行程如下： 
 
@@ -32,12 +35,12 @@ D8 ：奎屯→天山天池→乌鲁木齐(400KM)
 
 D9： 乌鲁木齐→回家
 
-总结：初步计划出来行程比较赶 坐飞机的时间可以适当调整，以保证大家回到成都后至少有一天的休息时间
+**行程总结：**   
+* 初步计划出来行程比较赶 坐飞机的时间可以适当调整，以保证大家回到成都后至少有一天的休息时间
 
-关于处理问题：新疆大部分地方都是有网的，个别很偏的公路除外
+* 关于处理问题，新疆大部分地方都是有网的，个别很偏的公路除外
 
-这个路线主要偏北疆、没有去塔克拉玛干沙漠、没有特克斯、没有独库的南段；一般在路途中会根据当时的实际情况对路线做部分调整，比如说天气不好的时候就没必要去草原了，就会跳过一些地方。
-机票和租车：需要行程确定了在开始准备预定
+* 这个路线主要偏北疆、没有去塔克拉玛干沙漠、没有特克斯、没有独库的南段；一般在路途中会根据当时的实际情况对路线做部分调整，比如说天气不好的时候就没必要去草原了，就会跳过一些地方。   
 
 ## **准备事项：**   
 **衣服：**   
@@ -65,7 +68,8 @@ D9： 乌鲁木齐→回家
 * 手机支架视租车情况决定， 有的话也可带一个；   
 * 大家要是有野餐垫的话也可以带上 我可以带一个（之前看当地人在琼库什台的草地上野餐，很是惬意）；   
 * 可以在手机里下点电子书、视频和眼罩、来回总共七个小时的飞机；   
-* 行李箱由于需要放到车上（可以出发的话，车子是丰田霸道），所以尽量控制在24寸；   
+* 行李箱由于需要放到车上（可以出发的话，车子是丰田霸道），所以尽量控制在24寸；
+* 其它常规药品（比如感冒药、健胃消食片、布洛芬、双黄连等；欢迎补充）   
 
 
 ## **景点建议：**（https://zhuanlan.zhihu.com/p/377801244）
